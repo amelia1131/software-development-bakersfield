@@ -1,1 +1,0 @@
-# software-development-bakersfield
